@@ -12,7 +12,11 @@
 
 
 <p align="center">
-  $$\color{#FF0000}{\text{SHIPS DNI PLSSS IDM TALKING ABOUT THEM BUT DONT LIKE,,RP WITH ME◞‸◟ㆀ}}$$
+  wip prns
+</p>
+
+<p align="center">
+  wip ^_^
 </p>
 
 <div align="center">
@@ -21,6 +25,19 @@
 <summary>testijg this shit</summary>
 
 blehyfh
+
+</details>
+
+</div>
+
+<details>
+<summary>wip thig idk</summary>
+
+burps
+sneezes
+coughs
+uh
+runs away
 
 </details>
 
