@@ -15,4 +15,13 @@
   $$\color{#FF0000}{\text{SHIPS DNI PLSSS IDM TALKING ABOUT THEM BUT DONT LIKE,,RP WITH ME◞‸◟ㆀ}}$$
 </p>
 
+<div align="center">
 
+<details>
+<summary>testijg this shit</summary>
+
+blehyfh
+
+</details>
+
+</div>
