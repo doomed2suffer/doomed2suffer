@@ -30,6 +30,8 @@ blehyfh
 
 </div>
 
+<div align="center">
+
 <details>
 <summary>wip thig idk</summary>
 
