@@ -7,7 +7,7 @@
 
 
 <p align="center">
-  wip... o_o
+  $$\color{#282828}{\text{blehh wipp:P}}$$
 </p>
 
 
