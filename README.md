@@ -4,7 +4,7 @@
 
 
 <p align="center">
-  wip ^_^
+  wip... o_O
 </p>
 
 
