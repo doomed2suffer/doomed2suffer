@@ -7,13 +7,15 @@
 
 <p align="center">
   $$\color{#FFFF00}{\text{“ So that's it? . . I'm just. . Stuck with you? ”}}$$
+
+  
   
 </p>
 
 
 <p align="center">
 
-  $$\color{#CC5500}{\text{☰ . . @hii i go by many things but maple / whatever skin im as is fine ˃͈◡˂͈ 𝄒. .}}$$
+  $$\color{#E0115F}{\text{☰ . . @hii i go by many things but maple / whatever skin im as is fine ˃͈◡˂͈ 𝄒. .}}$$
 </p>
 
 <p align="center">
