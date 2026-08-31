@@ -56,8 +56,3 @@ all me btwww 👀👀👀
 </details>
 
 </div>
-
-
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/cf85fee3-a169-47cf-909e-1b09f2320c36" width="1000">
-</p>
