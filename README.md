@@ -1,46 +1,63 @@
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/006faad7-6f7a-4157-9c57-6adc3f988714" width="500">
+  <img src="https://github.com/user-attachments/assets/d1ed39f0-0b6b-4580-8b0c-aa1b73fbd7db" width="1200">
 </p>
-
 
 
 
 
 <p align="center">
-  $$\color{#282828}{\text{blehh wipp:P}}$$
+  $$\color{#FFFF00}{\text{“ So that's it? . . I'm just. . Stuck with you? ”}}$$
+  
 </p>
 
 
 <p align="center">
-  wip prns
+
+  $$\color{#CC5500}{\text{☰ . . @hii i go by many things but maple / whatever skin im as is fine ˃͈◡˂͈ 𝄒. .}}$$
 </p>
 
 <p align="center">
-  wip ^_^
+  $$\color{#E0115F}{\text{𓏻 ゛she / anyㅤ♡⎯}}$$
 </p>
+
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/c4ccbeae-6040-4b1a-ade1-3229c1a04239" width="500">
+  
+</p>
+
+
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/cf85fee3-a169-47cf-909e-1b09f2320c36" width="1000">
+</p>
+
 
 <div align="center">
 
 <details>
-<summary>testijg this shit</summary>
+<summary>♡</summary>
 
-blehyfh
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/dd9747bb-4fbf-46db-9ef2-74c64d43f81e" width="500">
+</p>
+
 
 </details>
 
 </div>
 
+
 <div align="center">
 
 <details>
-<summary>wip thig idk</summary>
+<summary>✩</summary>
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/e67c20bc-3d25-4b6b-96bf-c56db7fcea52" width="500">
+</p>
 
-burps
-sneezes
-coughs
-uh
-runs away
+all me btwww 👀👀👀
 
 </details>
 
 </div>
+
+
