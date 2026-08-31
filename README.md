@@ -15,7 +15,7 @@
 
 <p align="center">
 
-  $$\color{#E0115F}{\text{☰ . . @hii i go by many things but maple / whatever skin im as is fine ˃͈◡˂͈ 𝄒. .}}$$
+  $$\color{#FF7F50}{\text{☰ . . @hii i go by many things but maple / whatever skin im as is fine ˃͈◡˂͈ 𝄒. .}}$$
 </p>
 
 <p align="center">
