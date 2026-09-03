@@ -25,7 +25,7 @@
 <details>
 <summary><strong><u>ᑲᥡіі ᥆_᥆ !!</u></strong></summary>
 
-*Heelloioio ^_^ ,, myname is maple/jack/1x/mpst characters i relate to/WHATWVER,,I go by she/any and I LOVVEE making friends..Pls don't be afraid to int and talk w/ me!!!!tho i can get very clingy and desperate despite being very socially awkward and i have rlly bad episodes at times where i feel low so most times its best to int w/care.BHUTTofc idm jokes n stuff like that so pls don't feel afraid to swear or whateva im not rlly sensitive o_o.* 
+*Heelloioio ^_^ ,, myname is maple/jack/1x/mpst characters i relate to/WHATWVER,,I go by she/any and I LOVVEE making friends..Pls don't be afraid to int and talk w/ me!!!!tho i can get very clingy and desperate despite being very socially awkward and i have rlly bad episodes at times where i feel low so most times its best to int w/care.BHUTT idm jokes n stuff so pls don't feel afraid to swear or whateva im not rlly sensitive o_o.* 
 
 
 </details>
