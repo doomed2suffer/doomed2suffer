@@ -25,8 +25,7 @@
 <details>
 <summary><strong><u>ᑲᥡіі ᥆_᥆ !!</u></strong></summary>
 
-*Heelloioio ^_^ ,, myname is maple/jack/1x/mpst characters i relate to/WHATWVER,,I go by she/any and I LOVVEE making friends..Pls don't be afraid to int and talk w/ me!!!!tho i can get very clingy and desperate despite being very socially awkward and i have rlly bad episodes at times where i feel low so most times its best to int w/care.BHUTT idm jokes n stuff so pls don't feel afraid to swear or whateva im not rlly sensitive o_o.* 
-
+*Heelloioio ^_^ ,, myname is maple/jack/1x/ and pretty much MOST characters I relate to,, im not rlly a sensitive person and I barely have a lot of personal issues with stuff but PLSS ppl who rp dni i don't like itas its just not smth 4 me!!! but hmm 16- BIG iwc/mostly dni if possible with a dew minor exceptions to SOME people ** 20+ ppl also iwc / dni if possible. ANOTHER important thing is I sometimes go through lows and it's sucks so bad 2 be around me then I fearbso most times its best to int w/care..but um..Feel free 2 int n bmf ^_^* 
 
 </details>
 
