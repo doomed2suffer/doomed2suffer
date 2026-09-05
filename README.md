@@ -25,7 +25,7 @@
 <details>
 <summary><strong><u>ᑲᥡіі ᥆_᥆ !!</u></strong></summary>
 
-*Heelloioio ^_^ ,, myname is maple/jack/1x/ and pretty much MOST characters I relate to,, im not rlly a sensitive person and I barely have a lot of personal issues with stuff but PLSS ppl who rp dni i don't like itas its just not smth 4 me!!! but hmm 16- BIG iwc/mostly dni if possible with a dew minor exceptions to SOME people ** 20+ ppl also iwc / dni if possible. ANOTHER important thing is I sometimes go through lows and it's sucks so bad 2 be around me then I fearbso most times its best to int w/care..but um..Feel free 2 int n bmf ^_^* 
+*Heelloioio ^_^ ,, myname is maple/jack/1x/ and pretty much MOST characters I relate to,, im not rlly a sensitive person and I barely have a lot of personal issues with stuff but PLSS ppl who rp dni i don't like it as its just not smth 4 me!!! but hmm an important thing is I sometimes go through lows and it's sucks so bad 2 be around me then I fearbso most times its best to int w/care..but um.. otherwise feel free 2 int n bmf ^_^* 
 
 </details>
 
