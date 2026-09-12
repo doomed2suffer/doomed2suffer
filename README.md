@@ -1,7 +1,9 @@
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/4cca9060-b228-4065-8ff9-0f281086901f" width="350">
+  <img src="https://github.com/user-attachments/assets/63e68960-b4c4-4a48-b2b3-7956d3fe59ae" width="350">
 </p>
 
 <p align="center">
-  new fixation yo... 😢😢
-</p>
+  $\color{#FFFBA6}{\textsf{wip yoo...}}$
+</𝐩>
+
+
