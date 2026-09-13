@@ -12,3 +12,24 @@
 <p align="center">
   $\color{#FFFBA6}{\textsf{“ youve been sending flowers 2 me .ᐟ . . . ”}}$
 </𝐩>
+‎ ‎ ‎ 
+
+
+
+
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+<div align="center">
+
+<details>
+<summary>ᰔ</summary>
+
+
+Yep! Alphabetically, it would be:
+
+**A, A/W, B, I, R, RY, S, T, V** - U GUYS R SOO AWESOME ILY ALL ! 💛💛💛
+
+
+
+</details>
+
+</div>
