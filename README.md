@@ -24,8 +24,6 @@
 <summary>ᰔ</summary>
 
 
-Yep! Alphabetically, it would be:
-
 **A, A/W, B, I, R, RY, S, T, V** - U GUYS R SOO AWESOME ILY ALL ! 💛💛💛
 
 
