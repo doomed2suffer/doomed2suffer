@@ -8,25 +8,12 @@
   <img src="https://github.com/user-attachments/assets/a6403588-52ae-437e-8f00-63e6751a3efb" width="450">
 </p>
 
-
-<p align="center">
-  $\color{#FFFBA6}{\textsf{“ youve been sending flowers 2 me .ᐟ . . . ”}}$
-</𝐩>
-‎ ‎ ‎ 
-
-
-
-
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 <div align="center">
 
 <details>
 <summary>ᰔ</summary>
-
-
-**A, A/W, B, I, R, RY, S, T, V** - U GUYS R SOO AWESOME ILY ALL ! 💛💛💛
-
-
+  $\color{#FFFBA6}{\textsf{tgis git lowk ugly yo.}}$
 
 </details>
 
