@@ -1,12 +1,10 @@
 
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/5a4b5678-7841-4a90-b115-54c8f1aa9350" width="1200">
-</p>
 
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/a6403588-52ae-437e-8f00-63e6751a3efb" width="450">
+  <img src="https://github.com/user-attachments/assets/1834d4a4-46b4-43cd-b316-f1c5be412b3c" width="300">
 </p>
+
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 <div align="center">
@@ -18,3 +16,4 @@
 </details>
 
 </div>
+
