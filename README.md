@@ -1,9 +1,12 @@
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/35fa4709-7eb2-4a3a-86f2-351ea4c6a0f3" width="500">
+</p>
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 <div align="center">
 
 <details>
 <summary>ᰔ</summary>
-  $\color{#E3963E}{\textsf{jack themed git soon,,TRUST}}$
+  $\color{#A4ABD0}{\textsf{ion what 2 put here}}$
 
 </details>
 
