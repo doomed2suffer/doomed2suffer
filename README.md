@@ -2,10 +2,13 @@
 <p align="center">
   <a href="https://itztvtime.atabook.org/">
     <img src="https://github.com/user-attachments/assets/296d41a8-46e8-4f68-b57d-8be365e26793" width="130" alt="">
-    &nbsp;
+  </a>
+  &nbsp;
+  <a href="https://fivestarz.straw.page">
     <img src="https://github.com/user-attachments/assets/b5f7cbef-6fb9-46ea-9039-377fd84d2fcc" width="130" alt="">
   </a>
 </p>
+
 
 
 
