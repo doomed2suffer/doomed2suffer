@@ -1,27 +1,33 @@
-
 <p align="center">
-  <a href="https://itztvtime.atabook.org/">
-    <img src="https://github.com/user-attachments/assets/296d41a8-46e8-4f68-b57d-8be365e26793" width="130" alt="">
-  </a>
-  &nbsp;
-  <a href="https://fivestarz.straw.page">
-    <img src="https://github.com/user-attachments/assets/b5f7cbef-6fb9-46ea-9039-377fd84d2fcc" width="130" alt="">
-  </a>
+  <img src="https://github.com/user-attachments/assets/e2041f1a-a715-46aa-8319-bb4dd7e5ec45" width="1700">
 </p>
 
 
 
-
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/7f9795b2-c71d-416f-993d-338129784da5" width="650" alt="">
+</p><p align="center">
+  <img src="https://github.com/user-attachments/assets/49d89d9b-f8a8-4564-8d24-fe7aa79f0bd8" width="1000">
 </p>
 
-<div align="center">
-<details>
-  <summary>‎ ‎ ‎ ‎ </summary>
-
-  @𝘴𝘪𝘭𝘭𝘺𝘮𝘪𝘯𝘯𝘺 𝘧𝘰𝘳 𝘢𝘳𝘵 𝘢𝘣𝘰𝘷𝘦
 
 </details>
+
 </div>
+<div align="center">
+
+
+
+
+‎ ‎ ‎
+‎ ‎ ‎ ‎ ‎ ‎
+‎ ‎ 
+‎ ‎ ‎ 
+
+<details>
+<summary><strong><u>ᑲᥡіі ᥆_᥆ !!</u></strong></summary>
+
+*I forgot I had this saved in my notes omg😭.*
+</details>
+
+</div>
+
 
